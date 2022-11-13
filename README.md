@@ -16,3 +16,5 @@ atualmente tenho interesse em me aprofudar em :
 ## Pessoal
 
 ![Ricardo milos](https://media.tenor.com/tVrkM5XhW-EAAAAS/flick-esfand.gif)
+
+[![Linkedin](https://s2.glbimg.com/cKFJ6UPPm-Er063_lAu4G8avjs4=/0x0:640x233/640x0/smart/filters:strip_icc()/i.s3.glbimg.com/v1/AUTH_08fbf48bc0524877943fe86e43087e7a/internal_photos/bs/2021/a/J/MmkRyqTCA7AD3DSz5DYA/2011-05-18-linkedin-logo-1.jpg)](https://www.linkedin.com/in/gabriel-de-oliveira-paes-ferreira-787b47227/)
